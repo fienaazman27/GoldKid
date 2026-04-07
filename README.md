@@ -1,0 +1,2 @@
+# GoldKid
+First time trade
